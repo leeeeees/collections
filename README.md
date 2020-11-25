@@ -1,2 +1,0 @@
-# Jin_Kang
-d
